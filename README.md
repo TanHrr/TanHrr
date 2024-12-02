@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @TanHr, a passionate Human Resources professional with over three years of experience in recruitment and employee engagement.
+- 👀 I’m interested in connecting with tech talents, particularly in the fintech and Web3 industries, to create innovative teams that drive the future of technology.
+- 🌱 I’m currently learning about technical talent assessment, blockchain basics, and the latest trends in fintech to enhance my ability to support teams with exceptional hires.
+- 💞️ I’m looking to collaborate on open-source projects and initiatives that connect developers with exciting career opportunities.
+- 📫 How to reach me: Feel free to connect with me via email at hanthonhattan1997@gmail.com or on [LinkedIn](https://www.linkedin.com/in/h%C3%A0n-t%C3%A2n-717142145/).
+- 😄 Pronouns: He/Him.
+- ⚡ Fun fact: I love building relationships with universities to foster the next generation of tech innovators, and I once reduced a training workload by 90% with process improvements!
